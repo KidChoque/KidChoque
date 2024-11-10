@@ -14,4 +14,4 @@ Minha jornada em TI começou com um interesse por desenvolvimento de software, e
 Estou aberto a oportunidades de estágio na área de desenvolvimento de software, onde eu possa aplicar e expandir meus conhecimentos, colaborando em projetos desafiadores e agregando valor à equipe.
 
 🌐 Vamos Conectar?
-Sinta-se à vontade para me contatar por aqui ou no meu LinkedIn.
+Sinta-se à vontade para me contatar por aqui ou no meu [LinkedIn](https://www.linkedin.com/in/lucas-santos-machado-41bbb4275/).
